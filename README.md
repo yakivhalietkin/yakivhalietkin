@@ -7,4 +7,4 @@
       drawing and sketching 
 📫 How to reach me: 
       📸 [Instagram](https://www.instagram.com/yakivhalietkin)
-      📬 [E-Mail](mailto:yakivhalietkin@gmail.com) : yakivhalietkin@gmail.com
+      📬 [E-Mail](mailto:yakivhalietkin@gmail.com) - yakivhalietkin@gmail.com
